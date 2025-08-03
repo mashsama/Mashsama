@@ -1,4 +1,4 @@
-
+![Image](https://github.com/user-attachments/assets/a1dc1fa0-10b0-4ef8-9d56-1d60efbbf098)
 
 
 <h1 align="center">Hi 👋, I'm MASH</h1>
